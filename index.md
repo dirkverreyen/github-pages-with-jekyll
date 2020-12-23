@@ -1,3 +1,1 @@
-# Dirk VERREYEN
-
-Creativite projecten in tijden van lockdown
+Creatieve projecten in tijden van lockdown
