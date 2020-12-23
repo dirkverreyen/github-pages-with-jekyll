@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Dirk VERREYEN
 
-I'm glad you are here. I plan to talk about ...
+Creativite projecten in tijden van lockdown
